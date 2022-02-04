@@ -7,4 +7,4 @@
 <h2> In the world of love, we continue to thrive and innovate to elevate as we create to educate the young brains.</h2>
 <h1> Kindly note that we can only be able to grab a job in this field when we have practiced alot of times as that is the only way we can master the skills properly. </h1>
 <h2> Let us continue to do what we can to ensure that we are verry ready for what we are talking abpout which is making enough money to own a home in panama for our retirement. </h2>
-
+<h1> for the love of Christ has kept us together and will continue to keep us going in one love and most importantly in peace.</h2>
